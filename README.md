@@ -1,1 +1,1 @@
-# Classic-.wear
+# Classic.wear
